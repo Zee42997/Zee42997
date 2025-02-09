@@ -1,1 +1,1 @@
-## Hi there my name is Zekia
+## Hi, I'm Zekia, an IT Professional
